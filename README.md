@@ -4,9 +4,9 @@
 
 ## 🔗 官方链接
 
-主地址: https://jb2024.com
+主地址: https://jbei672.vip
  
-备用地址: https://jbei2024.vip 
+备用地址: https://jbei386.vip 
  
 TG订阅号: https://t.me/Jbeione
  
