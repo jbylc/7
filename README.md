@@ -8,9 +8,6 @@
  
 备用地址: https://jbei386.vip 
  
-TG订阅号: https://t.me/Jbeione
- 
-在线支持: https://t.me/JbeiVip
 
 
 ## 🔔 使用须知
